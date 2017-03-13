@@ -1,3 +1,2 @@
-blsa bls git u noutpedu asfdgaewreargerg
+blsa bls git u noutptojemojtekstedu asfdgaewreargerg
 Nova linija
-nesto
